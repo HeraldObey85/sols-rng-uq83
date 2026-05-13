@@ -1,4 +1,4 @@
-#  
+#  sol's rng ultimate Script offers the most advanced sol's rng Script, with no clip and god mode. Perfect for dominating any match.
 
 
 
